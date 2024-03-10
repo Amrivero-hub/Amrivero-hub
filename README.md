@@ -29,6 +29,8 @@ program demonstrates my ability to handle data, make informed decisions, and cre
 ### Connect with Me
 ## [Via LinkedIn] (https://www.linkedin.com/in/angela-martin-332bba72/)
 
+![ ] (![Photo](https://github.com/Amrivero-hub/Amrivero-hub/assets/154753489/4e345b51-637c-4f2e-83f6-9fe922c951c0))
+
 
 
 
